@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ritish
+- 👋 ritish
 - 😄 Pronouns: He/Him/His
 
 
